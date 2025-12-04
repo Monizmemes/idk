@@ -1,2 +1,6 @@
 # idk
-eu caguei o codigo, por isso existe
+<(0_0<) <(0_0)> (>0_0)> kirby dance
+
+roubaram minhas torradas...
+
+>⩊<
